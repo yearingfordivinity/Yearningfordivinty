@@ -1,7 +1,10 @@
-![6590ebd7a2c628fee71f21a58bede02f](https://github.com/user-attachments/assets/87b0e1c2-26b3-452e-b933-63612de7fb5c)
+![76b87bb47f2b46d477f6b7023b48666f](https://github.com/user-attachments/assets/7ef3700c-5705-4fd0-a455-f4268aef1814)
+
 # Yearningfordivinty
 
 hello!! ^_^ im divi 
 
 
 i have many different fandoms!!
+
+![6cd975c2d0cd82fb548022e27f26c8db](https://github.com/user-attachments/assets/106fd37c-9018-4301-b190-81ecfb73bc1e)
