@@ -1,9 +1,1 @@
-
-hello!! ^_^ im divi 
-
-
-i have many different fandoms!!
-
-![6cd975c2d0cd82fb548022e27f26c8db](https://github.com/user-attachments/assets/106fd37c-9018-4301-b190-81ecfb73bc1e)
-
-https://pronouns.cc/@Divi/edit
+![94ba2794e675af0df984fdff850958c5](https://github.com/user-attachments/assets/dd609bf8-fe7b-437b-98c0-65e7c22f3d02)
